@@ -8,7 +8,6 @@ ele ainda está em desenvolvimento... e se tiver alguma sugestão pode mandar!
 
 bom dia🌄 / boa tarde🌅 / boa noite🌙 a todos 😃👨‍💻
 
-minhas redes sociais:
+meu Instagram:
 
-Instagram: [peter_august_700]
-Discord: [Peter_August_700#7668].
+Instagram: [peter_august_700](https://instagram.com/peter_august_700)
